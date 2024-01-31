@@ -1,0 +1,1 @@
+Expediente para la deposición de los archivos en los que se contengan los avances y muestras de trabajo correspondiente al desarrollo del Producto Integrador de Aprendizaje de la asignatura de Inteligencias Artificiales suscitado durante el periodo semestral Enero - Junio 2024.
